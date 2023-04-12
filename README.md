@@ -1,0 +1,1 @@
+# pedra-pale-e-tesura
